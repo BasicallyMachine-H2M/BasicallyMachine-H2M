@@ -9,3 +9,5 @@ Discord: yoshimaker.99
 Projects: NunoBox, Internetium, etc.
 
 Be nice to mii, because I hate being insulted or traumatized.
+
+If you are blocked user and want to request something, you will be ignored.
