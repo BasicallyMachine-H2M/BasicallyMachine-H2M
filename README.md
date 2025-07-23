@@ -4,7 +4,7 @@
 
 Pronouns: he/him
 
-Discord: yoshimaker.99
+Discord: _uselesshammerbro_ (add underscores at the beggining and the end of "uselesshammerbro" )
 
 Projects: NunoBox, Internetium, etc.
 
