@@ -4,10 +4,12 @@
 
 Pronouns: he/him
 
-Discord: _uselesshammerbro_ (add underscores at the beggining and the end of "uselesshammerbro" )
+Discord: lestercrest.001
 
 Projects: NunoBox, Internetium, etc.
 
 Be nice to mii, because I hate being insulted or traumatized.
 
 If you are blocked user and want to request something, you will be ignored.
+
+Dev guy and malware extractor/tester. Favorite malwares: WinXP.Horror.Destructive, x.exe, MrsMajor, etc.
