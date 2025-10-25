@@ -11,5 +11,3 @@ Projects: NunoBox, Internetium, etc.
 Be nice to mii, because I hate being insulted or traumatized.
 
 If you are blocked user and want to request something, you will be ignored.
-
-Dev guy and malware extractor/tester. Favorite malwares: WinXP.Horror.Destructive, x.exe, MrsMajor, etc.
